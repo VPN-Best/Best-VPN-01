@@ -20,7 +20,7 @@
 在线客服快速回复，问题处理效率高，机场还提供包含小火箭的苹果账号和 Netflix 账号购买渠道。
 
 ## 2.NiceClous 奈思云机场 2024最稳定的付费SSR节点梯子  
-[**点击官方网站注册**](https://go.51tz.cc/nicecloud)  
+[**点击官方网站注册**](https://go.1vpn.cc/nisi)  
 最低套餐月付12元  
 
 [![奈絲韻.jpg](https://s2.loli.net/2023/11/21/dFAnPqGciwMJo9W.jpg)](https://go.51tz.cc/nicecloud)  
@@ -34,7 +34,7 @@
 包年套餐用户直接赠送ChatGpt等高级账号，除了常规套餐之外，也有不限时按量付费流量包提供。
 
 ## 3.SYCloud 速云梯机场 稳定的高端机场梯子加速器 
-[**点击官方网站注册**](https://go.51tz.cc/sycloud)  
+[**点击官方网站注册**](https://go.1vpn.cc/suyu)  
 最低套餐月付18元
 
 [![速云梯.jpg](https://s2.loli.net/2023/11/28/tZVUaivdECBQhwy.jpg)](https://go.51tz.cc/sycloud) 
@@ -50,7 +50,7 @@
 速云梯的科学上网客户端不仅仅支持电脑版本，苹果手机，安卓手机，Mac电脑，Ipad等设备，都能在官网上下载相对应的客户端，安装后 轻轻一点，即可享受无界上外网。 
 
 ## 4. SodaCloud网络加速器   
-[**点击官方网站注册**](https://go.51tz.cc/sodacloud)  
+[**点击官方网站注册**](https://go.1vpn.cc/soda)  
 最低套餐月付50元
 
 ![苏打云机场](https://github.com/VPN-Best/Best-VPN-01/assets/148308996/fcb59c6f-09ce-4962-b673-235ba61ee8d6)
